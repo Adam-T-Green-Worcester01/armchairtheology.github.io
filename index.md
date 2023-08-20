@@ -1,5 +1,1 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+My name is Adam Green. I am a computational chemist by training. I completed my PhD in molecular biophysics at the University of Tennesse-Knoxville and now live in the Greater Boston area with my wife and son. I came to believe in God and the Christian faith through a re-examination of God and the bible through open and relational theology. All posts in this blog will be from the Bible App's daily scripture and analyzed according to an open and relational frameowork. 
